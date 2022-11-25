@@ -1,0 +1,27 @@
+# STROGONOFF #
+
+### INGREDIENTES: ###
+
+- LLLLLL
+- AAAA
+- LLLL
+- CCCC
+- ZZZZ
+- AAAA
+
+
+
+### MODO DE PREPARO: ###
+
+- QQQQ
+
+- WWWW
+
+- EEEE
+
+- RRRR
+
+  
+
+
+
